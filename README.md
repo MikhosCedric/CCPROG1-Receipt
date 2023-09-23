@@ -1,0 +1,1 @@
+# CCPROG1-Receipt
